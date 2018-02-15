@@ -1,2 +1,2 @@
 # DollarCoin (CAD)
-It's always worth $1
+Always worth $1
