@@ -1,2 +1,2 @@
 # DollarCoin (CAD)
-Always worth $1
+It's like bitcoin, but just always worth $1
