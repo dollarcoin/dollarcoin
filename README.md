@@ -1,2 +1,3 @@
 #DollarCoin (USDC)
-#Always worth $1 (USD)
+
+Always worth $1 (USD)
