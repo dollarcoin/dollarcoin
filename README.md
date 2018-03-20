@@ -1,1 +1,2 @@
-#DollarCoin (DLC)
+#DollarCoin (USDC)
+Always worth $1 (USD)
