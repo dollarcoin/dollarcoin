@@ -1,3 +1,1 @@
-#DollarCoin (USDC)
-
-Always worth $1 (USD)
+Do you want your business to be found all over online? Small Biz SEO [Small Biz SEO](https://www.smallbizseo.com "Small Biz SEO") can help. We are a marketing company that specializes in SEO for small business growth. Our team of SEO experts can help you get the most out of your website and increase your online visibility.
